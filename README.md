@@ -1,3 +1,3 @@
 ### Hey 👋
 
-[can support me](https://www.chaitanyan.me/supportme)
+[can support me](https://www.chaitanyan.cc/supportme)
