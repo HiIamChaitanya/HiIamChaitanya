@@ -1,3 +1,3 @@
 ### Hey 👋
 
-[Buy Me a Coffee](https://www.chaitanyan.cc/supportme)
+[Buy Me a Coffee](https://www.buymeacoffee.com/HiIamChaitanya)
